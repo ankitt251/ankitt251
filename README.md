@@ -14,7 +14,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1hxwp4tw7lmMJb2GaBEEEyrJQFII-7p_s/view?usp=drive_link](https://drive.google.com/file/d/1hxwp4tw7lmMJb2GaBEEEyrJQFII-7p_s/view?usp=drive_link)
 
-- ⚡ Fun fact **I am funny, I Sign, I Play Guitar, Active professional volleyball player. You'll love to talk.**
+- ⚡ Fun fact **I am funny, I sing & play guitar, Active professional volleyball player. You'll love to talk.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
